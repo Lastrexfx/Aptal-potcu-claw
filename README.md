@@ -14,3 +14,6 @@ bot dilenmeye devam :D
 ![image](https://github.com/Lastrexfx/Aptal-potcu-claw/assets/126358839/8dcd8890-56e9-4729-86d7-e1541a2537ac)
 ![image](https://github.com/Lastrexfx/Aptal-potcu-claw/assets/126358839/7d3e23e3-43c9-45b4-9610-92d1a9bd528a)
 ![image](https://github.com/Lastrexfx/Aptal-potcu-claw/assets/126358839/1517bbcc-0d26-4e5e-96d3-09f7456ad133)
+
+
+Neoshi☆#1000,' Artimxf#1927,Albatros#0666 ve ClyDev seni cok seviyoruz 💛
