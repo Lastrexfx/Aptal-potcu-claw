@@ -25,4 +25,16 @@ bot dilenmeye devam :D
 
 ![image](https://media.discordapp.net/attachments/1095241744880238633/1109115429902884984/image.png?width=530&height=406)
 
+devamıda varmis uuu
+
+![image](https://media.discordapp.net/attachments/1100466591054954566/1109170289654386788/image.png?width=404&height=406)
+
+![image](https://media.discordapp.net/attachments/1100466591054954566/1109170274596835339/image-1.png?width=688&height=406)
+
+![image](https://media.discordapp.net/attachments/1100466591054954566/1109170259132436533/image-2.png?width=514&height=406)
+
+![image](https://media.discordapp.net/attachments/1100466591054954566/1109170247551950988/image-3.png?width=668&height=406)
+
+masallah bro
+
 Albatros#0666,Neoshi☆#1000,' Artimxf#1927 ve ClyDev seni cok seviyoruz 💛
