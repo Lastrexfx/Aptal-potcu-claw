@@ -1,12 +1,12 @@
 # Aptal-potcu-claw
 BRO MİLLETE ALTYAPİCİ DİYİP ALTYAPİ DİLENMEN YAZİK
-![alt text](file:///C:/Users/onur2/Downloads/Screenshot_2023-05-19-13-10-29-08_572064f74bd5f9fa804b05334aa4f912.jpg)
-![alt text](file:///C:/Users/onur2/Downloads/Screenshot_2023-05-19-13-10-22-71_572064f74bd5f9fa804b05334aa4f912.jpg)
-![alt text](file:///C:/Users/onur2/Downloads/Screenshot_2023-05-19-13-10-50-05_572064f74bd5f9fa804b05334aa4f912.jpg)
-![alt text](file:///C:/Users/onur2/Downloads/Screenshot_2023-05-19-13-12-17-30_572064f74bd5f9fa804b05334aa4f912.jpg)
-![alt text](file:///C:/Users/onur2/Downloads/Screenshot_2023-05-19-13-12-23-99_572064f74bd5f9fa804b05334aa4f912.jpg)
-![alt text](file:///C:/Users/onur2/Downloads/Screenshot_2023-05-19-13-12-34-99_572064f74bd5f9fa804b05334aa4f912.jpg)
-![alt text](file:///C:/Users/onur2/Downloads/Screenshot_2023-05-19-13-12-34-99_572064f74bd5f9fa804b05334aa4f912.jpg)
-![alt text](file:///C:/Users/onur2/Downloads/Screenshot_2023-05-19-13-12-55-11_572064f74bd5f9fa804b05334aa4f912.jpg)
-![alt text](file:///C:/Users/onur2/Downloads/Screenshot_2023-05-19-13-12-42-06_572064f74bd5f9fa804b05334aa4f912.jpg)
-![alt text](file:///C:/Users/onur2/Downloads/Screenshot_2023-05-19-13-12-45-55_572064f74bd5f9fa804b05334aa4f912.jpg)
+https://cdn.discordapp.com/attachments/1095241744880238633/1109106837464305784/Screenshot_2023-05-19-13-10-29-08_572064f74bd5f9fa804b05334aa4f912.jpg
+https://cdn.discordapp.com/attachments/1095241744880238633/1109106859715068044/Screenshot_2023-05-19-13-12-17-30_572064f74bd5f9fa804b05334aa4f912.jpg
+https://cdn.discordapp.com/attachments/1095241744880238633/1109106864836325527/Screenshot_2023-05-19-13-12-23-99_572064f74bd5f9fa804b05334aa4f912.jpg
+https://cdn.discordapp.com/attachments/1095241744880238633/1109106916975710288/Screenshot_2023-05-19-13-12-42-06_572064f74bd5f9fa804b05334aa4f912.jpg
+https://cdn.discordapp.com/attachments/1095241744880238633/1109106917298675772/Screenshot_2023-05-19-13-12-45-55_572064f74bd5f9fa804b05334aa4f912.jpg
+https://cdn.discordapp.com/attachments/1095241744880238633/1109106917579698257/Screenshot_2023-05-19-13-12-26-76_572064f74bd5f9fa804b05334aa4f912.jpg
+https://cdn.discordapp.com/attachments/1095241744880238633/1109106917852319784/Screenshot_2023-05-19-13-12-32-94_572064f74bd5f9fa804b05334aa4f912.jpg
+https://cdn.discordapp.com/attachments/1095241744880238633/1109106918317895680/Screenshot_2023-05-19-13-12-34-99_572064f74bd5f9fa804b05334aa4f912.jpg
+https://cdn.discordapp.com/attachments/1095241744880238633/1109106918317895680/Screenshot_2023-05-19-13-12-34-99_572064f74bd5f9fa804b05334aa4f912.jpg
+https://cdn.discordapp.com/attachments/1095241744880238633/1109106918770872320/Screenshot_2023-05-19-13-12-55-11_572064f74bd5f9fa804b05334aa4f912.jpg
