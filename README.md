@@ -37,4 +37,4 @@ devamıda varmis uuu
 
 masallah bro
 
-Albatros#0666,Neoshi☆#1000,' Artimxf#1927 ve ClyDev seni cok seviyoruz 💛
+Albatros#0666,Neoshi☆#1000,' Artimxf#1927,arwen#0007,lenzy#1337 ve ClyDev seni cok seviyoruz 💛
